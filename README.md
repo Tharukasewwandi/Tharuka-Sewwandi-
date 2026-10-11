@@ -1,5 +1,4 @@
 # Tharuka-Sewwandi-
-Hi..😍
 
 ## 📜 Certifications & Credentials
 
